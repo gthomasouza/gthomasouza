@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @gthomasouza
+- 👋 Hi, I’m   Guilherme Thomas
 - 👀 Cursoando ADS
 - 📫 -IG: @gthomasouza
