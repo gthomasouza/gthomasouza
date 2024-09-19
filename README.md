@@ -1,3 +1,5 @@
 - 👋 Hi, I’m   Guilherme Thomas
-- 👀 Cursando ADS
-- 📫 -IG: @gthomasouza
+- 👀 Analise e Desenvolvimento de Sistemas
+- 📘 Uninove
+- 💻Tecnico de TI Jr
+- 📫 -IG: @gui.thomass
